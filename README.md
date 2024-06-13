@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **riaforcode@gmail.com**
 
-- ⚡ Fun fact **Rain, Craze, Chase Atlantic and a whole lot of intellect.**
+- ⚡ Fun fact **Rain, Craze and a whole lot of intellect.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
